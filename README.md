@@ -1,2 +1,2 @@
 # JavaScript Coding
-This is a test text file
+tgjhfy nghjky jkhg bhjkhjf gh
